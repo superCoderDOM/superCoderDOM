@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 
 - 😏 Pronouns: He/him
 - 💬 Ask me about my weird journey!
-- ⚡ Fun fact: I'm a 12th generation Canadian. That comes with owning all the bad, ugly, despicable my ancestors and all their contemporaries did to the First People of the land they settled.
+- ⚡ Fun fact: I'm a 12th generation Canadian. That comes with owning all the bad, ugly and despicable things my ancestors and all their contemporaries did to the First People of the land they settled since the 1600s.

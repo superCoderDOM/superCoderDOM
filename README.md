@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+[![Ceasefire Now](https://badge.techforpalestine.org/default)](https://techforpalestine.org/learn-more)
+
+- 😏 Pronouns: He/him
+- 💬 Ask me about my weird journey!
+- ⚡ Fun fact: I'm a 12th generation Canadian. That comes with owning all the bad, ugly, despicable my ancestors and all their contemporaries did to the First People of the land they settled.
